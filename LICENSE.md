@@ -1,4 +1,4 @@
-
+Experience bedwars like never before with bedwars Scripts updated, the #1 Script. Includes auto-sell and anti-ban for unbeatable performance.
 
 
 
